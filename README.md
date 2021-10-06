@@ -1,0 +1,5 @@
+# EduFord-University
+The University of Houston EduFord is a public research university in Houston, Texas. Founded in 1927, U of H is the flagship institution of the University of EduFord System and the third-largest university in Texas with over 46,000 students. 3.2 GPA or higher in the high school academic core requirements with competitive SAT or ACT scores. Scores of at least 1100 (SAT) or 24 (ACT) with a GPA of 2.5 or higher. Meet UH Eligibility Index (combination of GPA and test scores).
+Image result for university of EduFord
+UH earned a top 50 ranking as a “Top Performer for Social Mobility,” and also landed on the lists for “Top Public Schools” and “Best Value Schools.” “Once again, the University of Houston has proven itself to be a major player among top-ranked universities in the country,” said UH President Renu Khator. Located near the heart of Houston, this public, tier one research university offers over 300 degrees and programs and award-winning faculty.4800 Calhoun Rd, Houston, TX 77004
+University of EduFord, Address.
